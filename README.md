@@ -6,4 +6,4 @@
 
 💞️ I'm looking to collaborate in breaking monopolies and paradigms to open people's minds to decentralization and the benefits of this model and way of thinking.
 
-📫 You can reach me on instagram @juliospn and linkedin /julio-spnascimento.
+📫 You can reach me on instagram @juliospn and linkedin /julio-spnascimento. My portfolio: https://juliospn.github.io/portfolio/
