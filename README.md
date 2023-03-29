@@ -1,6 +1,6 @@
 ### 👋 Hi, I’m @juliospn.
 
-👀 I'm interested in technology, crossfit, sports, finance, philosophy, economics, all because of bitcoin. In technology I'm trying to study everything, I jumped headlong into this sea of knowledge, but I'm more inclined towards Bisness Intelligence.
+👀 I'm interested in technology, crossfit, sports, finance, philosophy, economics, all because of bitcoin. In technology I'm trying to study everything, I jumped headlong into this sea of knowledge, but I'm more inclined towards software development.
 
 🌱 I’m currently learning frontend.
 
